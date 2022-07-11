@@ -2,7 +2,7 @@
 - 👀 I’m interested in League of Legend
 - 🌱 I’m currently learning in a university
 - 💞️ I’m looking to collaborate on teamwork
-- 📫 How to reach me email:
+- 📫 How to reach me email: qwq
 
 <!---
 EternallyLoveLyJoy/EternallyLoveLyJoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
